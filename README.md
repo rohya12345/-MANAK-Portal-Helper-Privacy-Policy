@@ -1,0 +1,1 @@
+# -MANAK-Portal-Helper-Privacy-Policy
